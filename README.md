@@ -11,3 +11,6 @@ tool is my favorite band ever and my hyperfixation so uhm
 <br>
 <br>
 BTW IF YOU WANT TO REMOVE ME FROM FOLLOWING YOU PLEASE PLEASE PLEASE HARDBLOCK bc i might follow you again by accident mb
+<br>
+<br>
+i quickly follow everyone i see without like reading links so if im in your dni sorry! feel free to block
